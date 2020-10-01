@@ -8,4 +8,9 @@ yo bro
 ye message maine add kiya he, naam dekh lo bhale hi.
 master
 master
+ master
 nimit hu sabka baap
+
+
+yo yo boi "gullu singh"
+ master
